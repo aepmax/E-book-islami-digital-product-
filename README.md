@@ -16,13 +16,12 @@ File PDF ini bisa dibaca langsung sebagai bahan refleksi harian dan dakwah ringa
 ---
 
 ## Link Pembelian / Versi Canva:
-[Linktree Saya](https://linktr.ee/namatoko) ← ganti dengan milikmu
+[Linktree Saya](https://lynk.id/aep45)
+(https://payhip.com/EbookIslamictemplate)
 
 ---
 
-## Kontak & Sosial Media:
-- Instagram: [@namatoko](https://instagram.com/namatoko)
-- Email: kamu@email.com
+- Email: aepfiss@gmail.com
 
 ---
 
